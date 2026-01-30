@@ -20,7 +20,7 @@ And hope still wears your face somehow
 Let me go before I break  
 I’m not the one you’re meant to save  
 I don’t need light, I live in scars  
-You can’t kill what’s already gone  
+You can’t destroy what’s already gone  
 If you still care, then let it fade  
 Don’t say my name, don’t make me stay  
 Some hearts survive by staying buried  
@@ -46,7 +46,7 @@ You just survived me anyway
 Let me go before I break  
 I’m not the one you’re meant to save  
 I don’t need light, I live in scars  
-You can’t kill what’s already gone  
+You can’t destroy what’s already gone  
 If you still care, then let it fade  
 Don’t say my name, don’t make me stay  
 Some hearts survive by staying buried  
